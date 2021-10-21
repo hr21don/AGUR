@@ -1,2 +1,2 @@
 # Agur
-Our mission at Agur is that there are no strangers here, only friends you haven't met yet.
+In Biblical Names the meaning of the name Agur is: Strangers, gathered together.
